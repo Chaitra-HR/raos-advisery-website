@@ -2,7 +2,6 @@
 
 ## Attract high-end clients for your advisory business
 
-Build a real connection with your ideal clients: understand who they’re, what their motivation is and how you should engage with them 
 
 Proven Web Design, Marketing, and Optimization services for financial advisers 
 
@@ -28,8 +27,9 @@ New advisers pop up every day.
 
 ### Strategy
 
+#### Emotions that connect with 
 
-
+Build a real connection with your ideal clients: understand who they’re, what their motivation is and how you can engage with them 
 ### Copy
 
 ### Design
@@ -77,7 +77,9 @@ Content marketing that gets the results you’re looking for. The right words in
 
 ## Remember, you’re just one great website away
 
-One that connects to your ideal clients and get them calling you ready to hire without you ever having to get on a sales call. Yes, that can happen !!!
+One that get onto your potential customers' radar and get them calling you ready to hire without you ever having to get on a sales call. Yes, that can happen !!!
+
+Let's see if we're a good fit? 
 
 ## Sounds too good to be true? 
 
