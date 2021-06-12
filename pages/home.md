@@ -33,21 +33,17 @@ You know you’re great at what you do. Clients love working with you because th
 
 Clients love working with you because you get results that surpass anything they could find elsewhere with a personalized plan tailored to meet each goal - but prospects don't know this about you. 
 
-All you need to turn things around is a startegic website that's designed to connect to the hearts and minds of your ideal clents 
+All you need to turn things around is a startegic website that's designed to connect to the hearts and minds of your ideal clients 
 
 It takes strategic direction to get there
 
-Who on your team 
 
-Is a copywriter? 
-   a positioning expert ? 
-   a stratgiest? 
-
-Who knows how best to reach your clients. No one. That's what clients hire me do 
 
 # Section: SOLUTION
 
-## Hi! I'm Chaitra
+## Who on your team Is a copywriter? a positioning expert ? a stratgiest? 
+
+Who knows how best to reach your clients. No one. That's what clients hire me do 
 
 I can help you build your dream business using the same startgies that big banks from UBS, Merill lynh to boutique advisory firms use to get found online. 
 
@@ -61,7 +57,6 @@ Branding
 
 Copy
 
-
 And it works no matter you're just starting out or have been doing it for years. 
 
 # Section: Here's what your peers have to say
@@ -70,8 +65,6 @@ And it works no matter you're just starting out or have been doing it for years.
 # Section: CALL TO ACTION WITH URGENCY
 
 ## All good things come with a catch
-
-Indeed there's a catch. So what is it?
 
 I've a clear process for working with clients and I only work with clients that pass my "would I buy from them"? test. You can pass this test easily (Hint: if you're a fiduciary) 
 
@@ -93,16 +86,13 @@ I can't take on every client that comes my way. I only work with clients who are
 
 Currently booking for July 2021
 
-waitlist so 
+Join thr waitlist
 
 # Section: FREEBIE
 
 ## Fancy, trying it out yourself? 
 
-## Try it out yourself 
-
 This is the exact process I've used to get found online and have been using it on clients starting from $2000 USD. And you can have it for free. But I bet you'd wish you found this earlier. 
-
 
 Get my process
 
