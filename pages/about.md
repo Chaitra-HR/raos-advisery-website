@@ -4,11 +4,13 @@
 
 ## Helping advisers connect to perfect audience
 
+Smart because 
+
 If it's got to do with standing out in a satured maketplace. You need to 
 
 Okay, and design.And a little bit of segmentation and personalization. And storytelling.And, well, everything in the digital marketing playbook. But mostly words - yes words the oldest tool in the marketing toolkit
 
-## If you want to be boring and not use 
+## If you want to be boring and not use like 
 
 ## The swiss army knife for the mordern marketer
 
@@ -16,6 +18,18 @@ Okay, and design.And a little bit of segmentation and personalization. And story
 # Section: INTRO - WHO AM I DO, WHAT I DO & HOW I HELP
 
 ## Hello, I'm Chaitra 
+
+In today's world where everything from cars to coffee mugs are available in abundance, consumers don't just look for function anymore - they're seeking out objects or businesses who stand apart by having some sort of personal meaning behind them like their favorite sports team logo or passion. 
+
+Ever since the age of antiquity, humans have sought to create things that are not only functional but also aesthetically pleasing. In our current society, there is a trend for people and companies alike to want products with personality; something they can connect with on an emotional level. I believe in this philosophy wholeheartedly and design every project I release full of brand personality so as your prospects surf through online looking for "the perfect adviser," make sure “you’re the one”!
+
+So you know if you work with me are full of personality, connecting with people on an emotional level.
+
+I push boundaries 
+
+
+
+
 
 # Section: PROCESS - HOW WE DO IT 
 
