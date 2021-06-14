@@ -2,7 +2,7 @@
 
 ## Lead generation that works for financial advisers
 
-If you are looking for an unrivaled web presence that will send clients straight to your digital doorstep, you’re at the right place.
+If you are looking for an unrivaled web presence that will send clients straight to your digital doorstep,(and who doesn't?) you’re at the right place.
 
 I help financial advisors reach their ideal clients by building custom lead generation strategies that attract and convert prospects into clients.
 
@@ -13,7 +13,7 @@ powerful, trustworthy, & strategic websites that attract and convert prospects i
 
 # Section: PAIN
 
-## Reaching your ideal clients online doesn't have to be so hard
+## Reaching your ideal clients online doesn't have to be so hard I bet you’ve had this happen before.
 
 Right now, you're probably doing everything you know you need to convert more leads. 
 
@@ -66,9 +66,9 @@ And it works no matter you're just starting out or have been doing it for years.
 
 ## All good things come with a catch
 
-I've a clear process for working with clients and I only work with clients that pass my "would I buy from them"? test. You can pass this test easily (Hint: if you're a fiduciary) 
+There’s a catch! I’m only taking on a limited number of clients…because I want to do my best work and have limited time to work 1-on-1 with clients. If you are a fiduciary adviser interest in working with me
 
-I play favourates and only work with clients that pass my "would I buy from them"? test. You can ace this easily (hint: if you're a fiduciary) 
+I've a clear process for working with clients and I only work with clients that pass my "would I buy from them"? test. You can pass this test easily (Hint: if you're a fiduciary) 
 
 See If we're a good fit 
 
@@ -81,6 +81,8 @@ I don't work with any adviser,
 ## What's the next step? 
 
 Great, now that you've scrolled this far, I need you to know 
+
+I take a fun approach to my work and I only accept relationships with people and businesses I would be happy to work with myself.
 
 I can't take on every client that comes my way. I only work with clients who are good fit for my skill sets. Let's see if you're a perfect client for me! 
 
