@@ -30,15 +30,18 @@ New advisers pop up every day.
 #### Emotions that connect with 
 
 Build a real connection with your ideal clients: understand who they’re, what their motivation is and how you can engage with them 
+
+
 ### Copy
 
 ### Design
 
 
-### Content 
+### Content Words matter
 
-Content marketing that gets the results you’re looking for. The right words in the right places entice new visitors to your site, convert them into leads, and ultimately, make them clients.
+#### It’s easy to get lost online. 
 
+But with the right words on your website, blog or social media account you can make sure everyone finds you.
 
 
 ## I offer one signature no need to pitch package that includes everything you need if you’re looking for a new website that helps you get more online clients starting at $2000 USD
