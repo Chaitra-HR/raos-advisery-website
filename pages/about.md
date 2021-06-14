@@ -1,16 +1,16 @@
 # Section: ABOVE FOLD - WHAT I HELP IN BRIEF
 
-## Helping smart advisers connect to their ideal audience
-
-Smart because 
+## I don’t want to bore you. I craft strategies that produces effective copywriting, clean designs, and awesome content.
 
 ## So you provide a service that helps people invest their money. It’s a worthy job, helping other people plan for the future financially speaking, but how do you reach the masses?
 
 ## The truth is: 
 
+You became an advisor because it’s your calling. You wanted to follow your passion, take a chance on your ideas, and grow something of your own.
+
 > You didn't start your biz to figure out sales, launches, any of it. But here you are.
 
-> Your clients get ahhhhmayzing results, and you love what you do.
+> Your clients get ahhhhmayzing results, and you love what you do. You are a hugely valuable person with unparalleled skills, experience and expertise. It’s time to start using those abilities in a way that gives you freedom, control and more time to live the life of your dreams.
 
 > More importantly tho, you want a life #beyondthebiz - because that's why you REALLY got into this. 
 
